@@ -1,4 +1,3 @@
-# AhmadAlgifari
 ### Hello!👋i'm Ahmad Algifari just call me Algi.
 Now i'm learning at Bangkit Academy program Study Independent, I'm interested in skills in the Data field.
 
